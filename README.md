@@ -112,12 +112,12 @@ Dataset source:
 
 ## 👩‍💻 Developed By
 
-**Disha Gupta**
-B.Tech | GLA University, Mathura
+**Satyam singh**
+B.Tech | GL bajaj group of institutions , Mathura
 AI & Medical Imaging Enthusiast 🚀
 
-📬 Email: **[imdisha4346@gmail.com](mailto:imdis458@gmail.com)**
-🔗 GitHub: **[https://github.com/Disha4346](https://github.com/Disha4346)**
+📬 Email: **[satyam231501@gmail.com](mailto:satyam231501@gmail.com)**
+🔗 GitHub: **[https://github.com/satyamsingh646](https://github.com/satyamsingh646)**
 
 ---
 
